@@ -1,0 +1,1 @@
+# This Repo contains the collection of Original or Inspired idea that i have come up of for my own Creation.
